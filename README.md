@@ -1,0 +1,2 @@
+# premium-resinoid-prep-001-resinoid-preparation-tinctur
+Tired of scattered notes, forgotten batches, and inconsistent tincture yields? Your resinoid and tincture craft deserves a dedicated studio—not a messy notebook.  The Resinoid Preparation &amp; Tincture Craft Studio transforms Notion into your personal extraction lab. Track every batch from raw material to final bottle, manage formulas, expiration date
